@@ -4,7 +4,7 @@
 
 
 
-## I'm a Tech enthusiast, Gamer, Programer and Student 🥸
+## I'm a Tech Enthusiast, Programmer and Student 🥸
 
 
 - 🌱 In the name of curiosity trying to learn everything 😎
