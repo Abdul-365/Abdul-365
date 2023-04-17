@@ -8,7 +8,6 @@
 
 
 - 🌱 In the name of curiosity trying to learn everything 😎
-- 🥅 2022 Goals: Learn more about # web3
 
 ## What I know
 - Languages and technology:
